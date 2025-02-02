@@ -19,7 +19,8 @@
 </div>
 
 <!-- BEGIN_REPLACE_SECTION -->
-| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/jisou?start=a_1638135106) | [![@同城约炮](https://i.imgur.com/hFz9t0f.png)<br>玩偶姐姐](https://t.me/+gAPPGaiYm1FlNTlh)  | [![币安注册（享永久20%返利）]((https://github.com/user-attachments/assets/8d92bde5-b0fc-450d-8d93-5815aaec59bf)
+| [![@TG最强搜索机器人](https://i.imgur.com/uTMZCDf.png)<br>@TG最强搜索机器人](https://t.me/jisou?start=a_1638135106) | [![@同城约炮](https://i.imgur.com/hFz9t0f.png)<br>玩偶姐姐](https://t.me/+gAPPGaiYm1FlNTlh)  | [![![虛擬貨幣新手必讀　熱門加密貨幣、交易所、錢包一次看_副本](https://github.com/user-attachments/assets/1c8b9a48-df4c-4c92-8095-6fb971160789)
+]
 )<br>币安注册（享永久20%返利）](https://www.binance.com/zh-CN/join?ref=XFMLSSE1) |
 |:---:|:---:|:---:|
 |[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou?start=a_1638135106) |  [![Telegram频道导航/TG导航/Telegram频道推荐/Telegram导航/频道导航/电报导航/电报推荐/TG推荐](https://i.imgur.com/31YFV0f.png)<br>Telegram频道导航](https://tgdh.github.io) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=7352210715)|

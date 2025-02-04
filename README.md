@@ -10,9 +10,6 @@
 ❗️❗️❗️存在️广告内容，请自行辨别真假管好自己的钱包，出问题本站概不负责❗️❗️❗️
 
 
-<img src="https://i.imgur.com/ywjcaE6.png" alt="USDT">
-电报中文昵称也就是汉字❗️请点击以下机器人免费领取USDT❗️<img src="https://cryptologos.cc/logos/tether-usdt-logo.png" alt="USDT" width="12" height="12">
-(泰达币Tether),数量有限先到先得
 
 商务合作：https://t.me/x111eth86
 

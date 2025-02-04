@@ -29,7 +29,7 @@
 
 | **导航名称**       | **链接**                                           |
 |-----------------|---------------------------------------------------|
-| **🛫机场VPN导航站🛫** | [https://jichangvpn.github.io](https://jichangvpn.github.io) |
+| **🛫机场VPN导航站🛫** | [https://github.com/029danio/fly](https://github.com/029danio/fly)|
 | **🎯Telegram频道群组导航站🎯** | [https://tgdh.github.io](https://tgdh.github.io)或[https://telegramchannels.github.io](https://telegramchannels.github.io) |
 | **🎯AI导航站🎯** | [https://ai-navs.github.io](https://ai-navs.github.io) |
 | **🌈彩虹群发器🌈**         | [https://t.me/autocaihongbot](https://t.me/autocaihongbot?start=gwHypTpEnF84wUi)(机器人自助购买) |

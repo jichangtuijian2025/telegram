@@ -101,7 +101,7 @@
 
 ### 3. 接码平台
 
-- [SMS 接码平台](https://sms-activate.guru/?ref=2695392)
+- [SMS 接码平台](https://sms-activate.guru/?ref=9689117)
 
 ### 4. Giffgaff 手机卡
 

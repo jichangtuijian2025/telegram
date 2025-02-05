@@ -45,7 +45,7 @@
 | 🔥 极搜20万人搜索群   | [https://t.me/jisou200000](https://t.me/jisouy2) | 热门搜索群，涵盖多种资源       |
 | 🔥 资源搜索          | [https://t.me/resource4](https://t.me/resource4) | 提供多类型的资源搜索功能      |
 | 🔥 稀缺资源搜索      | [https://t.me/sosobo2](https://t.me/sosobo2) | 提供稀缺资源的专门搜索        |
-| 🔥 神马搜索         | [https://t.me/smss](https://t.me/smss?start=spread_7202424896)       | 提供快速资源搜索服务          |
+| 🔥 神马搜索         | [https://t.me/smss](https://t.me/smss?start=spread_1638135106)       | 提供快速资源搜索服务          |
 | 🔥 aiso中文搜索     | [https://t.me/aiso](https://t.me/aiso?start=telegram_7202424896)       | 中文资源搜索引擎             |
 | 🔥 哆啦A梦软件App| [https://t.me/dlamapp](https://t.me/dlamapp) | 各种软件、App和VPN破解资源    |
 | 🔥 色瓜中心| [https://t.me/seguazhongxin](https://t.me/seguazhongxin) | 分享全网第一热瓜|

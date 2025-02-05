@@ -20,7 +20,7 @@
 |:----:|:----:|:----:|
 |[![@极搜JiSou](https://i.imgur.com/1VoAGvh.png)<br>@极搜JiSou](https://t.me/jisou?start=a_1638135106) |  [![Telegram频道导航/TG导航/Telegram频道推荐/Telegram导航/频道导航/电报导航/电报推荐/TG推荐](https://i.imgur.com/31YFV0f.png)<br>Telegram频道导航](https://tgdh.github.io) |[![@i快搜](https://i.imgur.com/CsCtOBH.png)<br>@i快搜](https://t.me/ikuaisobot?start=1638135106)|
 | [![搜片神器](https://i.imgur.com/SVox0Se.png)<br>搜片神器](https://t.me/soupianshenqi520)  |  [![色色搜索](https://i.imgur.com/pwNAjvK.png)<br>❤️色色搜索🔞](https://t.me/chengrendaohang520) | [![暗网搜索](https://i.imgur.com/woGNZUA.png)<br>暗网搜索](https://t.me/anwangsousuo520)|
-| [![彩虹群发破解版/飞机/电报Telegram tdata/低价TG账号/TDATA/电脑直登/直登号tdata/协议号](https://i.imgur.com/SEd6n5H.png)<br>电报稀缺资源大全中文搜索](https://t.me/zysoso)|  [![彩虹群发器/彩虹群发/彩虹群发器破解版](https://i.imgur.com/6a8Zz9h.png)<br>彩虹群发器破解版](https://t.me/autocaihongbot?start=gwHypTpEnF84wUi)  |[![机场导航](https://i.imgur.com/yhw5VPW.png)<br>机场导航大全](https://jichangvpn.github.io/)|
+| [![彩虹群发破解版/飞机/电报Telegram tdata/低价TG账号/TDATA/电脑直登/直登号tdata/协议号](https://i.imgur.com/SEd6n5H.png)<br>电报稀缺资源大全中文搜索](https://t.me/zysoso)|  [![彩虹群发器/彩虹群发/彩虹群发器破解版](https://i.imgur.com/6a8Zz9h.png)<br>彩虹群发器破解版](https://t.me/autocaihongbot?start=gwHypTpEnF84wUi)  |[![机场导航](https://i.imgur.com/yhw5VPW.png)<br>机场导航大全](https://github.com/029danio/fly)|
 <!-- END_REPLACE_SECTION -->
 </table>
 

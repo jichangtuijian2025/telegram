@@ -38,6 +38,7 @@
 | 频道名称             | 链接                                       | 描述                        |
 |--------------------|--------------------------------------------|---------------------------------|
 | 🔥 频道导航/群组导航 | [https://t.me/tgpddh](https://t.me/tgpddh)   | Telegram频道和群组导航合集      |
+|大陆最强机场 | [https://cutt.ly/heU2e2U3]| ✨ 晚高峰支持秒开8K和4K视频 ✨支持ChatGPT【流畅使用GPT语音功能】，📺支持 奈飞 HBO 迪士尼登流媒体！【一年仅40元，每个月150G（150Gx12个月）高速流量，用到爽！】
 | 🚀 每日免费节点       | [https://t.me/freevpntg](https://t.me/freevpntg) | 每日免费提供高速的VPN节点         |
 | 🔥 红包接龙        | [https://t.me/HBJL](https://t.me/HBJL?start=invite_7439567495) |   大家都在玩惊险刺激的红包接龙游戏   |
 | 🔥 TG全能搜索        | [https://t.me/sesou20w](https://t.me/sesou20w) | 支持多种资源的强大搜索引擎      |
